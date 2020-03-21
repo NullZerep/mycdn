@@ -1,1 +1,1 @@
-JUST A SHIT UGLY SPAGHETTI STRUCTURE CDN
+Aye mate! There's nothing in here!
